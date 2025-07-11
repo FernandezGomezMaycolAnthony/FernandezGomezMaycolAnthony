@@ -21,9 +21,9 @@ Desde pequeño me llamó la atención el mundo de la tecnología gracias a mis t
 
  🚀 Lo que estoy aprendiendo
 
-- 🇺🇸 Inglés en un instituto (nivel intermedio–avanzado).
+- Inglés en un instituto (nivel intermedio–avanzado).
 - 💸 Inversiones personales.
-- 👨‍💻 Me gustaría **dominar la programación** y seguir creciendo día a día.
+- 👨‍💻 Me gustaría dominar la programación y seguir creciendo día a día.
 
  🧩 Objetivos
 
