@@ -16,8 +16,8 @@ Desde pequeño me llamó la atención el mundo de la tecnología gracias a mis t
 📈 Actualmente estoy finalizando mis estudios de inglés, lo cual será clave para poder crecer profesionalmente y colaborar con personas de otros países.
 
 📖 Una frase que me inspira es:  
-> "TODO LO PUEDO EN CRISTO QUE ME FORTALECE"
-> Filipenses 4:13
+ "TODO LO PUEDO EN CRISTO QUE ME FORTALECE"
+ Filipenses 4:13
 
  🚀 Lo que estoy aprendiendo
 
