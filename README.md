@@ -1,4 +1,8 @@
-## Hi there 👋
+## Hola amig@s 👋
+Mi nombre es Maycol Anthony Fernandez Gomez pero pueden llamarme Mayk,
+estudio la carrera de Ingenieria en Sistemas en la universidad Mayor de San Simon.
+Una frase que me inspira es: "SER MEJOR QUE AYER".
+
 
 <!--
 **FernandezGomezMaycolAnthony/FernandezGomezMaycolAnthony** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
