@@ -1,7 +1,7 @@
 👋 ¡Hola amig@s!
 
 Mi nombre es Maycol Anthony Fernandez Gomez, pero pueden llamarme Mayk.  
-🎓 Estudio Ingeniería en Sistemas** en la **Universidad Mayor de San Simón.  
+🎓 Estudio Ingeniería en Sistemas en la Universidad Mayor de San Simón.  
 💬 Me apasiona entender cómo funciona el software y cómo este puede resolver problemas del mundo real.
 
 
